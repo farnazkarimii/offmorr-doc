@@ -9,5 +9,3 @@
 
 [فروشگاه اینترنتی ارزان و سریع](https://melonest.ir)
 
-
-[فرزاد نقشین](https://farzaad.ir)
