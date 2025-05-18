@@ -4,7 +4,6 @@
 
 [خرید اینترنتی کفش ٬ تیشرت](https://offmorr.ir)
 
-[خرید اینترنتی کفش ٬ تیشرت]([https://offmorr.ir](https://offlandorg.com/))
-
+[فروشگاه اینترنتی کفش](https://offlandorg.com/)
 
 
